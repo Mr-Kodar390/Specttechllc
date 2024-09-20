@@ -1,1 +1,1 @@
-![SpectTech]([URL](https://github.com/Mr-Kodar390/Specttechllc/image.png)
+![SpectTech](https://github.com/Mr-Kodar390/Specttechllc/image.png)
