@@ -1,1 +1,1 @@
-![SpectTech](https://raw.githubusercontent.com/Mr-Kodar390/Specttechllc/refs/heads/main/image.png)
+![Specttech](https://www.specttechllc.com/wp-content/uploads/2024/09/Wondershare-Filmora-Crack.webp)
